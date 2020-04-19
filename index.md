@@ -1,1 +1,1 @@
-Spoko projects
+Marcin Fatyga
